@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @hac4us06
 - 👀 I’m interested in anime,novels,custom roms and development 
-- 🌱 I’m currently pursuing my bachelor's of computer application last year
+- Graduate from Computer Applications
+- Currently pursuing Post-graduation from Business Administration 
 - 📫 How to reach me at telegram @hac4us ,at insta ash_hac4us
 
 <!---
